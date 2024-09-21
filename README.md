@@ -1,4 +1,4 @@
-William Lynch
+William Lynch, 
 Christian | Husband | Father | Brother
 About Me
 Hello! My name is William Lynch and I'm excited to connect with you on GitHub. As a Christian, husband, father, and brother, family and faith are the cornerstones of my life.
